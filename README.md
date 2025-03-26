@@ -6,7 +6,7 @@
 
 ---
 
-<p align="center"><b><ins>TWO TIME</ins></b> <i>or</i> aether<i>!</i> <sup><img align="center" src="427124583-3075149f-8d9e-486d-8834-596e52f76c32.png" alt="nonbinary"></sup> they/them <i>only!</i>
+<p align="center"><b><ins>TWO TIME</ins></b> <i>or</i> aether<i>!</i> ♾ they/them <i>only!</i>
 <br> 19 year old <a href="https://forsaken2024.fandom.com/wiki/Two_Time">introject</a> in a C-DID system! 
 <br> i am a social part, feel free to talk to me!
 <br> c + h is always okay, i love interactions :)</p>
