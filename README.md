@@ -1,7 +1,8 @@
-![image](https://github.com/user-attachments/assets/4f06b274-bf7f-4e00-a81e-3b3e9048c5e9)
+<img src="https://imgur.com/PKhmIgN.png">
 <p align="center"><sub>art by misiifuu on tumblr!</sub></p>
 
-### i've come here to kill my maker, ![pixel](https://github.com/user-attachments/assets/10e727cd-74bf-48e3-bcee-37429fc9fb2e) 
+### i've come here to kill my maker, <img src="https://imgur.com/YOjpwht.png">
+
 ---
 
 ---
@@ -30,5 +31,5 @@
 
 ---
   
-### <p align="right"> ![pixel](https://github.com/user-attachments/assets/f7fe7ba6-93f9-4c04-8713-c81487e25477) 'cos i'd feel so much safer alone</p>
-![image](https://github.com/user-attachments/assets/cf5edd2e-b08e-4033-b654-70d5de5740a7)
+### <p align="right"> <img src="https://imgur.com/HUKkDDM.png"> 'cos i'd feel so much safer alone</p>
+<img src="https://imgur.com/eFnJFcI.png">
